@@ -1,3 +1,5 @@
+![](https://s3.orbi.kr/data/file/united/a9c5ac0c1d6dea304c26d7dead9ec780.gif)
+
 <h1 align="center">Hi 👋, I'm rlaalsrn285</h1>
 <h3 align="center">학원생</h3>
 
